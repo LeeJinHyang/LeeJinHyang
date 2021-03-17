@@ -1,3 +1,8 @@
+[Uploading 진향_포트폴리오_최종.pdf…]()
+
+
+
+
 - 👋 Hi, I’m @LeeJinHyang
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
